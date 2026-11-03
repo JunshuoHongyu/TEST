@@ -1,1 +1,1 @@
-https://ns1.getesa.gq/access/retrieve/Qt7Y6eHr5JaHnkAS10g2j8ezjv-qrbkqHeX3OOqb9D8
+acct ic  100780000005080754   CDR ISSUE account 
